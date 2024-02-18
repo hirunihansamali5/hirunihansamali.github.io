@@ -1,2 +1,4 @@
 # hirunihansamali.github.io
-hansamalisenarath
+Name: Hiruni Hansamali
+Year:
+About:dsaidhdoidhiasdj
